@@ -1,0 +1,3 @@
+Philippines (フィリピン)
+
+Manila (マニラ)
